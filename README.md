@@ -1,3 +1,3 @@
 ## Helloooo
 idk how to decorate this but ok here are my links
-[straw.page](https://cheeseotter.straw.page/)
+[spacehey]([https://cheeseotter.straw.page/](https://spacehey.com/thejordan))
